@@ -15,4 +15,3 @@ The Rules
 - Each day, reach out to at least two people on Twitter who are also doing the challenge
 
 I'm going to do my best, but at present, I'm not sure how to accomplish the last task as I only know one other person doing the challenge.
-
